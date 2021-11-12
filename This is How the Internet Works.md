@@ -1,0 +1,5 @@
+- [[Nov 12th, 2021]]
+- ![image ](https://images.app.goo.gl/Ci7wWpjZXGCAth6f7)
+-
+-
+-
